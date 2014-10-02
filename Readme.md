@@ -1,6 +1,8 @@
-Hakuna Matata ist scheiße
 
-Diesen Spruch mag ich gern
+Hakakuna Matatata
+
+
+D13s3n 5pruch m4g 1ch úñg3rn
 
 
 
