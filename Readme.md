@@ -1,6 +1,6 @@
-Hakuna Matata
+Hakakuna Matatata
 
-Diesen Spruch mag ich gern
+D13s3n 5pruch m4g 1ch g3rn
 
 
 
