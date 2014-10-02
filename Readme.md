@@ -1,4 +1,4 @@
-Hakuna Matata
+Hakuna Matata ist scheiße
 
 Diesen Spruch mag ich gern
 
